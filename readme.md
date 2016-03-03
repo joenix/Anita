@@ -20,8 +20,9 @@
 	- 群：20303209
 	- 包房：322190
 - QQ群：
+	- 「梅艳芳」超级歌迷会：[310653276](http://shang.qq.com/wpa/qunwpa?idkey=0b2a268b1fcd68f2d4ba02da47f8993b318a4d481bd24d4d5e653520aff610db)
 	- 纪念Anita超级粉丝群：526801745
-	- 邓丽君&梅艳芳：180604865
+	- 邓丽君&梅艳芳：[180604865](http://shang.qq.com/wpa/qunwpa?idkey=a81e302bc41da4721f84cce6f53fa1d12832246a21f0c2639ba14b1d1764ce14)
 
 ### 演唱会专辑
 - [梅艷芳尽显光华 1985-1986](http://www.bilibili.com/video/av2419051/)
