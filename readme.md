@@ -36,8 +36,8 @@
 - [芳蹤乍現台北演唱實錄 1997]
 - [Manhattan百變梅艷芳演唱會 1999]
 - [EdeS Spa百變梅艷芳演唱會99延續篇 1999]
-- [梅艷芳 mui music show 2001]
-- [梅艷芳極夢幻演唱會 2002]
+- [梅艷芳 mui music show 2001](http://www.bilibili.com/video/av2458275/)
+- [梅艷芳極夢幻演唱會 2002](http://www.bilibili.com/video/av1738069/)
 - [梅艷芳經典金曲演唱會_红馆绝唱 2003](http://www.bilibili.com/video/av3478260/)
 
 ### 专辑
